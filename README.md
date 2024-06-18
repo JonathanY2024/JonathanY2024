@@ -1,4 +1,4 @@
-## Ola! Eu sou o Jonathan 👋
+## Ola! Eu sou o Jonathan Yuri da Silva 👋
 
 - Técnico de Mecânica de Precisão (Completo)
 - Técnico de Redes de Computadores (Cursando)
